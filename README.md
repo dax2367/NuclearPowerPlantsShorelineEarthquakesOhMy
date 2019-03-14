@@ -1,0 +1,2 @@
+# NuclearPowerPlantsShorelineEarthquakesOhMy
+The Diablo Canyon and San Onofre nuclear power plants in California have been built on the shoreline directly over fault lines. This is very similar to the Fukushima power plant in Japan. The major difference if a similar meltdown were to occur here, instead of the radiation going out over the ocean, it would go over all the cropland and water supplies on the North American continent.
